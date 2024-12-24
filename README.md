@@ -44,7 +44,7 @@
 ### 📫 Как связаться со мной
 
 - **Email:** [andreiysolomonov@gmail.com]
-- **LinkedIn:** [andreiysolomonov]
+- **LinkedIn:** [www.linkedin.com/in/andriisolomon]
 
 ---
 
